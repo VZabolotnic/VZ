@@ -1,0 +1,2 @@
+# VZ
+Rechizitoriu pentru antrenament
